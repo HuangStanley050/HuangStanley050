@@ -1,1 +1,1 @@
-![halo](https://github.com/HuangStanley050/HuangStanley050/blob/master/HaloInfinite.jpeg)
+![halo](https://github.com/HuangStanley050/HuangStanley050/blob/master/capcomArt.jpeg)
